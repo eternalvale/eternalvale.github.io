@@ -1,1 +1,0 @@
-# eternalvale.github.io
